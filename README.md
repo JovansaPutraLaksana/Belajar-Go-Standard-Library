@@ -3,3 +3,6 @@ Repository ini merupakan dokumentasi pribadi pemilik repository dalam mempelajar
 
 # ini asdasf
 lorem ipsuknaf
+asdklnkKADF
+J;NSDLJNF;LJ
+nsdlkg
