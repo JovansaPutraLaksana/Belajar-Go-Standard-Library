@@ -5,4 +5,7 @@ Repository ini merupakan dokumentasi pribadi pemilik repository dalam mempelajar
 lorem ipsuknaf
 asdklnkKADF
 J;NSDLJNF;LJ
-nsdlkg
+nsdlkgdjflnsljn
+fsdfnslk
+mnljdjnsv
+jhhionew;anl
